@@ -8,7 +8,7 @@ date: 2024-10-21
 ## 📚Все материалы
 - [Как Великие географические открытия меняли представления людей о мире](https://arzamas.academy/shorts/379/4)
 - [Английская революция / Как Англия стала парламентской монархией? / Уроки истории / МИНАЕВ](https://youtu.be/iuQtiwU0oDs?si=1Z4LkP0rrDt5XxBc)
-- - [Абсолютизм во Франции. Людовик XIV](https://www.youtube.com/watch?v=YYPAFqQgbqE)
+- [Абсолютизм во Франции. Людовик XIV](https://www.youtube.com/watch?v=YYPAFqQgbqE)
 - [История Нового времени. #17. Франция в XVII веке - YouTube](https://youtu.be/KjaeuosgLI8?si=3jwfiyICioO79dLa)
 - [Век Версаля или век Мольера? - YouTube](https://youtu.be/gpkDCdmGpdU?si=wg_EpijDgB4qoW-a)
 - [Придворная жизнь как спектакль: от Версаля до Царского Села • Arzamas](https://arzamas.academy/materials/1371)
